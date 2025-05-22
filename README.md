@@ -6,6 +6,7 @@
 - Pronouns: straw page
 -  Fun fact: im more mature that 75% of people who are older than me 👁👄👁
 - Fandoms: CRK, some other stuff blah blah blah.. lazily lazy..
+- quick mentions: you can see what time it is for me and for you (if im not wrong!) :D 
 
 
 
