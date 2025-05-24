@@ -1,22 +1,16 @@
--  Hiya, I’m Pca!
--  I like stuff like- Plushies, moths, fluffy stuff, etcetera etcetera..
--  i dont learn code at all you goobers.
--  dni: see strawpage
-- How to reach me? Pony town, or roblox @PCACOUNT12345678 with display Pca, or via the strawpage things.
-- gender AND pronouns: pronoun page
--  Fun fact: im more mature that 75% of people who are older than me 👁👄👁
-- Fandoms: CRK, some other stuff blah blah blah.. lazily lazy..
-- quick mentions: you can see what time it is for me and for you (if im not wrong!) :D 
+- heya you goobers!
+- im Pca/Pollen
+- its pretty hard to live normally, especially when everyone is less mature than you.
+- im actually younger than most ppl who ARE immature! unbelievable!
+- pleasebee. pleasebee is the best. go watch them.
+- dont you DARE think about doing sixual or suggestive jokes with me,
+- romantic is still bareable... i guess...
+- i dont find "Freaky" funny okay? 😭
+- what my fandoms are? my own fandom, and also crk and kinda dw.. i guess.
+- dw has got boring for me, because its the same floors, same twisteds... GUAHG...
+- but i guess there might be a chance i come back... IF QWEL ADDS GAMEMODES-
+- especially for those who almost have all toons, getting a new toon isnt really.. cheery.
 
 
 
-
-
-
-
-
-
-
-  **𝙿𝚞𝚗𝚔 𝚃𝚊𝚌𝚝𝚒𝚌𝚜**
-
-  --------------------o------
+- well... more on the pronouns page!
