@@ -1,7 +1,6 @@
 - heya you goobers!
 - im Pca/Pollen
-- its pretty hard to live normally, especially when everyone is less mature than you.
-- im actually younger than most ppl who ARE immature! unbelievable!
+- i hate the fact im more mature than most minors which are older than me (even though im NOT saying im mature, i am WAY MORE mature than some..
 - pleasebee. pleasebee is the best. go watch them.
 - dont you DARE think about doing sixual or suggestive jokes with me,
 - romantic is still bareable... i guess...
